@@ -1,1 +1,1 @@
-# chris-inspiron-hub
+# chris-inspiration-hub
